@@ -31,4 +31,8 @@ E-mail:         dianvanrooi@gmail.com
 
 *Tilburg University*
 
-July 2015: 
+July 2015: Bachelor Thesis: "The effects of Fiscal Policy on GDP in European Countries: A VAR Analysis"
+
+*Supervised by: prof. dr. Eijffinger, Tilburg University*
+
+
