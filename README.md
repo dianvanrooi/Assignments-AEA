@@ -69,7 +69,30 @@ September 2016 - Present: Member of the Blog Committee at Asset | Economics
 
 *I am responsible for bringing new ideas to the table to improve the blog as well as writing articles*
 
+September 2016 - Present: Member of the Audit of Accounts at ASSET Tilburg
+
+*I am overlooking all financials, including investments of the business*
+
+September 2015 - Present: Member of the Audit of Accounts at Economic Business weeks Tilburg
+
+*I am overlooking all financials, including investments of the business*
+
+April 2015 - Present: Member of the Board of Advice of the Asset Conference at ASSET Tilburg
+
+*Being a member of the Board of Advice of the Asset Conference means that we give advice on the long-term vision of the Asset Conference and the smaller problems that occur during the organization of the conference*
+
+September 2015 - September 2016: Chairman of the Board at Asset | Economics *(Full-Time)*
+
+*During the year I was responsible for contact with other associations, the development of Asset | Economics, the policy and strategy of the association, and the contact with the Board of Advice of Asset | Economics. Furthermore, I was the representative at the General Board Meetings of Asset Tilburg, representative towards Tilburg University and press*
+
+September 2015 - September 2016: Treasurer of the General Board at ASSET Tilburg *(Full-Time)*
+
+*I was responsible for coordinating the Treasurers’ Meeting of Asset and the financial affairs of Asset. The financial affairs include interacting with the bookkeeping program Twinfield, making investment decisions and making plans regarding the future of the Treasurer function.*
 
 
 
 
+References
+----------
+
+References are available on request.
