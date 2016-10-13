@@ -58,7 +58,7 @@ June 2011 - December 2013: Sales Assistant at HEMA in Sint-Oedenrode *(16 hours/
 
 *Here I was cashier and in-store assistant*
 
-September 2010 - June 2011: Employee Supervisor and All-round Employee at Attent Support & Co in Sint-Oedenrode *(16 hours/week)
+September 2010 - June 2011: Employee Supervisor and All-round Employee at Attent Support & Co in Sint-Oedenrode *(16 hours/week)*
 
 *I supervised mentally challenged people and was an all-round employee in the supermarket*
 
@@ -87,13 +87,13 @@ September 2015 - September 2016: Chairman of the Board at Asset | Economics *(Fu
 
 September 2015 - September 2016: Treasurer of the General Board at ASSET Tilburg *(Full-Time)*
 
-*ASSET Tilburg is the study association for Tilburg School of Economics and Management, and has approximately 6000 members and a consolidated budget of approximately 800,000 Euros. I was responsible for coordinating the Treasurers’ Meeting of Asset and the financial affairs of Asset. The financial affairs include interacting with the bookkeeping program Twinfield, making investment decisions and making plans regarding the future of the Treasurer function. Combined with my other board position at Asset, I spent approximately 60-80 hours per week on the association.*
+*ASSET Tilburg is the study association for Tilburg School of Economics and Management, and has approximately 6000 members and a consolidated budget of approximately 800,000 Euros. I was responsible for coordinating the Treasurers’ Meeting of Asset and the financial affairs of Asset. The financial affairs include interacting with the bookkeeping program Twinfield, making investment decisions and making plans regarding the future of the Treasurer function. Combined with my other board position at Asset, I spent approximately 60-90 hours per week on the association.*
 
-December 2014 - June 2015: Committee Member of the PR-committee at UniPartners Tilburg *(6 hours/week)
+December 2014 - June 2015: Committee Member of the PR-committee at UniPartners Tilburg *(6 hours/week)*
 
 *The committee was responsible for promoting projects of UniPartners Tilburg amongst students of Tilburg University*
 
-January 2015 - April 2015: Promotional Affairs Officer of the Asset Conference at ASSET Tilburg *(14+ hours/week)
+January 2015 - April 2015: Promotional Affairs Officer of the Asset Conference at ASSET Tilburg *(14+ hours/week)*
 
 *I was responsible for the promotion of the Asset Conference, at that time the I was responsible for the promotion of the Asset Conference, at that time the did the acquisition of speakers with the rest of the committee and helped with planning and executing the operations during the day.*
 
