@@ -27,7 +27,7 @@ E-mail:         dianvanrooi@gmail.com
 
 2012 - 2016: Bachelor of Science, Economie en Bedrijfseconomie
 
-*Average grade: 7.1*
+*Average grade: 7.1/10*
 
 *Tilburg University*
 
@@ -36,6 +36,8 @@ July 2015: Bachelor Thesis: "The effects of Fiscal Policy on GDP in European Cou
 *Supervised by: prof. dr. Eijffinger, Tilburg University*
 
 August 2014 - December 2014: Exchange 
+
+*Average grade: 9.3/10*
 
 *Sungkyunkwan University, Seoul, South-Korea*
 
