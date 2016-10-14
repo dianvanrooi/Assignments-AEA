@@ -1,5 +1,6 @@
 **Cirriculum Vitae of Dian van Rooi**
 ====================
+
 *Personal Information*
 --------------------
 Full Name:      Dian van Rooi
