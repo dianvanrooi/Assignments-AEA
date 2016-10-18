@@ -86,7 +86,7 @@ April 2015 - Present: Member of the Board of Advice of the Asset Conference at A
 
 September 2015 - September 2016: Chairman of the Board at Asset | Economics *(Full-Time)*
 
-*Asset | Economics is the study association for students studying the bachelors "Economics and Business Ecoomics", "Economics" and the master "Economics", it has more than 800 members, of which approximately 80 active members. During the year I was responsible for contact with other associations, the development of Asset | Economics, the policy and strategy of the association, and the contact with the Board of Advice of Asset | Economics. Furthermore, I was the representative at the General Board Meetings of Asset Tilburg, representative towards Tilburg University and press*
+*Asset | Economics is the study association for students studying the bachelors "Economics and Business Economics", "Economics" and the master "Economics", it has more than 800 members, of which approximately 80 active members. During the year I was responsible for contact with other associations, the development of Asset | Economics, the policy and strategy of the association, and the contact with the Board of Advice of Asset | Economics. Furthermore, I was the representative at the General Board Meetings of Asset Tilburg, representative towards Tilburg University and press*
 
 September 2015 - September 2016: Treasurer of the General Board at ASSET Tilburg *(Full-Time)*
 
