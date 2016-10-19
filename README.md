@@ -3,7 +3,7 @@
 
 *Personal Information*
 --------------------
-Full Name:      Dian van Rooi
+Full Name:      Dian Johanna Rita Maria van Rooi
 
 Date of Birth:  14-02-1994
 
